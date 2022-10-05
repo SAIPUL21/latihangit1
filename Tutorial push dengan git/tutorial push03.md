@@ -1,1 +1,0 @@
-10. **sudah habis cuy**
